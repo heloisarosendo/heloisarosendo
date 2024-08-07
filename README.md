@@ -9,6 +9,7 @@ Meu nome é Heloisa Rosendo
   ## Você pode entrar em contato comigo 📬
 
   00001110800526sp@al.educacao.sp.gov.br
+  rosendoheloh@gmail.com
   
   @helo.r_ 
 
