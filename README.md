@@ -12,7 +12,7 @@ Meu nome é Heloisa Rosendo
   
   rosendoheloh@gmail.com
   
-  @helo.r_ 
+  @hrosendo_ 
 
 ![image](https://github.com/user-attachments/assets/de9e627c-083d-4a2b-9090-76023f3be30f)
 
